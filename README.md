@@ -3,4 +3,4 @@
 
 [Fiverr](https://www.fiverr.com/h_reugo) /
 [Codeforces](https://codeforces.com/profile/H_reugo) /
-[Telegram](https://t.me/H_reugo) /
+[Telegram](https://t.me/H_reugo)
